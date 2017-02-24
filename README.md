@@ -1,2 +1,3 @@
 # belajar
 permulaan dari keberhasilan
+hai nama saya ihpaz.. saat ini saya sedang belajar github... 
