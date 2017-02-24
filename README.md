@@ -1,0 +1,2 @@
+# belajar
+permulaan dari keberhasilan
